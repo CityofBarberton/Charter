@@ -1,0 +1,1 @@
+Every such grant shall provide that upon the annexation of any territory to the Municipality the portion of any such utility or service that may be located within such annexed territory and upon the streets, alleys, or public grounds thereof, shall thereafter be subject to all the terms of the grant as though it were an extension made thereunder.

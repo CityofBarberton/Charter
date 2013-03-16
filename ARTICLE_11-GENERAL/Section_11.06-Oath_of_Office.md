@@ -1,0 +1,1 @@
+Every officer of the City shall, before assuming the duties of his office, take and subscribe to an oath or affirmation to support the Constitution of the United States, the Constitution of the State of Ohio and the Charter of the Municipality, and faithfully, honestly, and impartially to discharge the duties of his office. (Nov. 4, 1980)

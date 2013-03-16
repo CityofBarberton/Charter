@@ -1,0 +1,1 @@
+The Mayor shall be elected at the general Municipal election in the year 1975, and every fourth (4th) year thereafter, for a term of four (4) years. His term shall commence, and he shall assume office, on the 1st day of January next following such election and shall serve until his successor is qualified. He may be a candidate to succeed himself.

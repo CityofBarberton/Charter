@@ -1,0 +1,1 @@
+Should the voters of Barberton and the voters of another municipality or township approve a merger of the two entities, then and in that event, the agreement reached by the Merger Study Commission, and approved by the voters of both communities, shall take precedence over any conflicting provisions of this Charter. (Nov. 5, 1985)

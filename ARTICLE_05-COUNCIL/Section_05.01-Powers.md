@@ -1,0 +1,1 @@
+The legislative power of the City, except as otherwise provided by this Charter and by the Constitution of the State of Ohio, shall be vested in the Council.

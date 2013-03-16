@@ -1,0 +1,1 @@
+All regular and special meetings of Council and all boards and commissions of the Municipal government at which any formal action is to be taken or decision rendered shall be open to the public as per Section 121.22 of the Ohio Revised Code. (Nov. 5, 1996; Nov. 4, 1997; Nov. 8, 2005)

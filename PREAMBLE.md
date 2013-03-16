@@ -1,0 +1,1 @@
+We, the people of the City of Barberton, in the County of Summit and State of Ohio, grateful to Almighty God for the freedoms we enjoy, in order to secure for ourselves the benefits of municipal home rule and exercise all the powers of local self government under the Constitution and laws of the State of Ohio, do adopt this Charter for our Municipality.

@@ -1,0 +1,1 @@
+The provisions of this Charter shall become effective January 1, 1974, except that all officials elected on November 6, 1973, including the President of Council, shall complete their respective terms except as otherwise provided in this Charter.

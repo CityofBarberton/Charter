@@ -1,0 +1,1 @@
+The Municipality shall have all the powers, general or special, governmental or proprietary, that may now or hereafter lawfully be possessed or exercised by municipal corporations under the Constitution and the general laws of the State of Ohio.

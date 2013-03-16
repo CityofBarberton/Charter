@@ -1,0 +1,1 @@
+Should the Mayor fail to fill a vacancy in a board or commission as provided in this Charter within forty-two (42) days of receiving notice of said vacancy, the Council by a majority vote of its membership shall fill said vacancy. (Nov. 5, 1985)

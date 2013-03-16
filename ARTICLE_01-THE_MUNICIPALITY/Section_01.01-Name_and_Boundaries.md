@@ -1,0 +1,2 @@
+The municipal corporation now existing in the County of Summit and State of Ohio and known as the City of Barberton, shall continue to be a body politic and corporate in perpetuity under the name of the City of Barberton.
+The City shall have the same boundaries that exist on the effective date of this Charter with power and authority to change its boundaries and annex other territory in the manner authorized by the laws of Ohio. Territories that may be annexed shall immediately become subject to the provisions of this Charter.

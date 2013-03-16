@@ -1,0 +1,1 @@
+The article and section headings herein have been inserted for convenient reference and are not intended to define or limit the scope of, or otherwise affect, any provision of this Charter.

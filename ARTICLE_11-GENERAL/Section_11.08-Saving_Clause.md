@@ -1,0 +1,1 @@
+The determination that any part of this Charter is invalid shall not invalidate or impair the force or effect of any other part hereof, except to the extent that such other part is wholly dependent for its operation upon the part declared invalid.

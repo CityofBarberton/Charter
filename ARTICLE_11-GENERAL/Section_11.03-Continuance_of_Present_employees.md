@@ -1,0 +1,1 @@
+Every employee of the Municipal government on December 31, 1973, shall continue in such employment and thereafter shall be subject in all respects to the provisions of this Charter.

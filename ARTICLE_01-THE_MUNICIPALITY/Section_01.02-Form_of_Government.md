@@ -1,0 +1,1 @@
+The Municipality shall be governed and administered under this Charter by the municipal Mayor-Council form of government. All powers of the Municipality, except as otherwise provided by the Constitution of the State of Ohio and this Charter, shall be vested in an elected Mayor-Council who shall execute the laws and administer the government of the Municipality.
